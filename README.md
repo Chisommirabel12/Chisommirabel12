@@ -3,7 +3,6 @@
 - 🌱 I’m currently learning DATA ANALYSIS
 - 💞️ I’m looking to collaborate with Data Analysts
 - 📫 How to reach me chisommirabeleze@gmail.com 
-- 😄 Pronouns: ...
 - ⚡ Fun fact: ... I LOVE MEETING NEW FRIENDS AND I LOVE MYSELF 
 
 <!---
